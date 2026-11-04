@@ -1,4 +1,4 @@
-# ribbon-lace-piercing
+# glistenzy
   <p align="center">
 hi hi hi!! im glisten and i love looey
      <p align="center">
