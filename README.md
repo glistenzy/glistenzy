@@ -1,4 +1,4 @@
-# glistenzy
+# read ME!
   <p align="center">
 hi hi hi!! im glisten and i love looey
      <p align="center">
