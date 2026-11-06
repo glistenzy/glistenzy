@@ -1,7 +1,6 @@
-# read ME!
+# WELCOME!
+
   <p align="center">
-hi hi hi!! im glisten and i love looey (pic from oomf, she draw this for me 💕 please do not steal since it's my glisten sona and my my canon/in-universe partner
- looey ;o)
      <p align="center">
  <img width="250" src="https://imgur.com/a/H9CwgQz.png"> 
   <p align="center">
