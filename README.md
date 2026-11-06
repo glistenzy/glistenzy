@@ -1,6 +1,7 @@
 # WELCOME!
 
   <p align="center">
+    Hi I'm Stenzy/Stenz, I am a heavy glisten fictionkin/flect/copinglink
      <p align="center">
  <img width="250" src="https://imgur.com/a/H9CwgQz.png"> 
   <p align="center">
