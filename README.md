@@ -1,4 +1,4 @@
-# WELCOME!
+# WIP! ( DO NOT USE MY GLISTEN SONA AS UR PFP OR SAVE IT OR REPOST IT ANYWHERE ESP DONT GET INSPO. UR NOT ME. UR NOT ME.
 <p align="center">
 <a href="https://ibb.co/PZVgkrvF"><img src="https://i.ibb.co/ynxq2Ncd/IMG-8087.png" alt="IMG-8087" border="0"></a>
 
