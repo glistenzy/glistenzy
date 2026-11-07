@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  if i find you distasteful, i MAY ghost you , im also mentally ill in the head btw !! i have diagnosis.
+  if i find you distasteful, i MAY ghost you
 </p>
 
 <p align="center">
