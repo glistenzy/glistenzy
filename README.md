@@ -4,14 +4,14 @@
   
 <p align="center">
   <a href="https://imgbb.com/"><img src="https://i.ibb.co/mVPVyTnF/IMG-8825.webp" alt="IMG 8825" border="0"></a> 
-     Hi my name is Stenzy/Stenz, I am also a heavy glisten fictionkin/flect/copinglink
+     Hi my name is Stenzy/Stenz, I am also a heavy glisten fictionkin/flect/copinglink (19y/o || dc; seedlly)
   
-  I'm ok around Looey Fictkins, but IWC! It will not be easy to have me around, as I'm a looey monoshipper 🐰, BUT bear w me and respect my boundaries pls. . . looey makes my heart flutter in every way as possible and will draw ur looey every single time. if u got to be so close with me and i love gifting like a lot. . . 
+  Looey fictionkins yes feel free to interact w me /nf, but IWC! It will not be easy to have me around, as I'm a looey monoshipper 🐰, BUT bear w me and respect my boundaries pls. . . looey makes my heart flutter in every way as possible and will draw ur looey every single time if u got to be so close with me and i love gifting like a lot. . . 
   i joined PT to make new DW friends ^^''. FEEL free to join my glisten emoji server <a href="https://discord.gg/F8q62Awpkm">discord.gg/F8q62Awpkm</a>
 </p>
 
 <p align="center">
-  if i find you distasteful, i MAY ghost you
+  if i find you distasteful, i MAY ghost you 
 </p>
 
 <p align="center">
