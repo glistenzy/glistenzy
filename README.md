@@ -11,17 +11,23 @@
   
 <div align="center">
   
-  i joined PT to make new DW friends ^^''. FEEL free to join my [glisten emoji server](https://discord.gg/F8q62Awpkm)
+  i joined PT to make new DW friends ^^''. FEEL free to join my [glisten emoji server](https://discord.gg/F8q62Awpkm) 
 </p>
 
 <p align="center">
-  if i find you distasteful, i MAY ghost you 
+  if i find you distasteful, i MAY ghost you <a href="https://imgbb.com/"><img src="https://i.ibb.co/cSnJyKs7/1439340153981112663.webp" alt="1439340153981112663" border="0"></a>
 </p>
 
 <div align="center">
 
-do you want to draw/doodle me some FUNHOUSEMIRROR ships? [click me](https://funhousemirror.straw.page/)
+<img src="https://i.ibb.co/tM1Y82PV/1439340153981112663.webp" alt="1439340153981112663" border="0"></a> do you want to draw/doodle me some FUNHOUSEMIRROR ships? [click me](https://funhousemirror.straw.page/) 
 
 <p align="center">
 <img src="https://i.ibb.co/zHxht7sw/1439340153981112663.webp" alt="1439340153981112663" border="0"> future looey and glisten 1st edition plush haver <img src="https://i.ibb.co/N6Rf3j38/1439340153981112663.webp" alt="1439340153981112663" border="0">
 </p>
+
+
+
+
+
+byi \ dni soon~
