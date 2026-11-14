@@ -7,7 +7,7 @@
      Hi my name is Stenzy/Stenz, I am also a heavy glisten fictionkin/flect/copinglink (19y/o || dc; seedlly)
 
   <p align="center">
-  I enjoy Looey a lot . . . Looey fictkins feel free to interact even if im on DNUID, i enjoy your companies with all the silliness/srs!! but it'll not be easy to have me around as im a looey monoshipper !! please keep that in mind. i will draw ya'll looey sonas if you got to be close with me as a friend. I LOVE GIFTING!! <img src="https://i.ibb.co/99ZZs7YB/IMG-8825.webp" alt="IMG 8825" border="0"></a> 
+  I enjoy Looey a lot . . . Looey fictkins please iwc, if you’re literally under 16 and below, please refrain from talking to me as I do not feel comfortable! but i enjoy your companies with all the silliness/srs!! but it'll not be easy to have me around as im a looey monoshipper !! please keep that in mind. i will draw ya'll looey sonas if you got to be close with me as a friend. I LOVE GIFTING!! <img src="https://i.ibb.co/99ZZs7YB/IMG-8825.webp" alt="IMG 8825" border="0"></a> 
   
 <div align="center">
   
